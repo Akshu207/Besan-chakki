@@ -13,6 +13,8 @@ Step 4. After 3 to 5 minutes, reduce the flame to low. Stir continuously and fry
 Step 5. After about 20 minutes of constant stirring and frying, the color of the besan changes to deep golden and begins to smell aromatic. We don't want it to turn brown otherwise it will taste bitter.
 
 Step 6. Take it off the stove and continue to stirr for another 2 minutes. Keep this aside to cool down.
+ 
+(If desireable :- Add condensed milk after turning besan to deep golden.)
 
 Making sugar syrup :-
 
