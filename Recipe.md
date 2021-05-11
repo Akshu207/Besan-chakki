@@ -14,7 +14,7 @@ Step 5. After about 20 minutes of constant stirring and frying, the color of the
 
 Step 6. Take it off the stove and continue to stirr for another 2 minutes. Keep this aside to cool down.
  
-(If desireable :- Add condensed milk after turning besan to deep golden.)
+(If desirable :- Add condensed milk after turning besan to deep golden.)
 
 Making sugar syrup :-
 
